@@ -5,5 +5,5 @@
 - I'm very keen on coding.
 - i believe that "learn by doing" is real thing.
 - Currently unemployed.
-- 👯 I’m looking to collaborate with other content creators
+- I’m looking for a career on innovative project.
 - 🥅 2021 Goals: Contribute more to Open Source projects.
