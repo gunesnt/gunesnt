@@ -4,6 +4,6 @@
 
 - I'm very keen on coding.
 - I believe that "learn by doing" is real thing.
-- Currently unemployed.
-- I’m looking for a career on innovative project.
+- Currently employed.
+- I’m looking for %100 Remote Job.
 - 2021 Goals: Contribute more to Open Source projects.
